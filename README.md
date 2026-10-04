@@ -1,3 +1,3 @@
 # Jomakann's Website
 
-Made with live by me.
+Made with love by me.
